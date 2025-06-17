@@ -1,6 +1,6 @@
 # 👋 Hi, I’m Mehryar (mehryar.info)
 
-**Architect & Creative Technologist | 80,000 m² Built Projects | Unreal Engine, Rhino, Revit | Digital Twin | Remote Work (PC/Mobile/VR) | Iran**
+**Architect & Creative Technologist | 80,000 m² Built Projects | Unreal Engine, Rhino, Revit | Digital Twin | Remote Work (PC/Mobile/VR)**
 
 ---
 
